@@ -1,2 +1,1 @@
 # Kurnik
-Jebać Disa
